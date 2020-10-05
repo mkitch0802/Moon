@@ -1,46 +1,27 @@
 ---
 layout: post
-title: "Post with Image Feature"
-date: 2012-05-23
+title: "Today is the Great Nat Turner’s Birthday."
+date: 2020-10-02
 excerpt: "A ton of text to test readability with image feature."
-tags: [sample post, readability, test, image, feature]
-feature: http://i.imgur.com/Ds6S7lJ.png
+tags: [Nat Turner, Black History, #BlackLivesMatter]
+feature: http://media.heartlandtv.com/images/Nat+Turner.jpeg
 comments: true
 ---
 
-Portland in shoreditch Vice, labore typewriter pariatur hoodie fap sartorial Austin. Pinterest literally occupy Schlitz forage. Odio ad blue bottle vinyl, 90's narwhal commodo bitters pour-over nostrud. Ugh est hashtag in, fingerstache adipisicing laboris esse Pinterest shabby chic Portland. Shoreditch bicycle rights anim, flexitarian laboris put a bird on it vinyl cupidatat narwhal. Hashtag artisan skateboard, flannel Bushwick nesciunt salvia aute fixie do plaid post-ironic dolor McSweeney's. Cliche pour-over chambray nulla four loko skateboard sapiente hashtag.
+With everything that has been going on in the last 6 months with the killings of Breonna Taylor, George Floyd, Ahmaud Arbery, just to name a few along with the pandemic which has affected people of color at a much higher and no one gives a damn, I can feel his frustration about being oppressed.  
 
-Vero laborum commodo occupy. Semiotics voluptate mumblecore pug. Cosby sweater ullamco quinoa ennui assumenda, sapiente occupy delectus lo-fi. Ea fashion axe Marfa cillum aliquip. Retro Bushwick keytar cliche. Before they sold out sustainable gastropub Marfa readymade, ethical Williamsburg skateboard brunch qui consectetur gentrify semiotics. Mustache cillum irony, fingerstache magna pour-over keffiyeh tousled selfies.
+Of course, Black People aren’t slaves (in chains and etc.) but to a degree we are still in the same situation but in a different time. For example, we have to worry about our lives if are pulled over at a traffic light, “Karens” calling authorities on any Black person just for being Black and a President/Congress who won’t call out “white supremacy” just to keep their job.  
 
-## Cupidatat 90's lo-fi authentic try-hard
+Police are still killing Black people and we are still being treated unfairly and not getting a fair shake at anything.  
 
-In pug Portland incididunt mlkshk put a bird on it vinyl quinoa. Terry Richardson shabby chic +1, scenester Tonx excepteur tempor fugiat voluptate fingerstache aliquip nisi next level. Farm-to-table hashtag Truffaut, Odd Future ex meggings gentrify single-origin coffee try-hard 90's.
+With all this said Black people everywhere are fed up and tired of being mistreated.  This also makes me look at all this “peaceful” protesting.  At what point does “action” need to take place to get things done? America has long been a country of violence.  Throughout history, violence has been a common denominator of getting things done even if we have nothing to do with it.  Colonizers came over and slaughtered the Native Americans, these same people fought their mother country, England, to be free and let’s not forget slavery. Bringing people here from another country against their will to build this country for free.  
 
-* Sartorial hoodie
-* Labore viral forage
-* Tote bag selvage
-* DIY exercitation et id ugh tumblr church-key
+So, you may ask, what the hell does this have to with Nat Turner’s birthday?  With that said, let me give you some history about Nat Turner. He was born enslaved on October 2, 1800 in Virginia. To my knowledge, not much is known about his father but his mother was a strongminded African woman who taught him to rebel.  He was sold 3 times during his childhood.  He was also taught to read by his slave master’s son as well as instructed in writing and religion in which he later became a preacher.  He became leader of the enslaved Africans on his plantation.  Turner was a deeply religious man and spent time reading the Bible and praying. As he grew older, he worked on a number of different plantations.
 
-Incididunt umami sriracha, ethical fugiat VHS ex assumenda yr irure direct trade. Marfa Truffaut bicycle rights, kitsch placeat Etsy kogi asymmetrical. Beard locavore flexitarian, kitsch photo booth hoodie plaid ethical readymade leggings yr.
+ On August 21, 1831, Nat Turner and his supporters led a rebellion against white slave owners which his own slave owners (family) were killed.  This rebellion put fear in white people living in the South. Over 50 white were killed during this rebellion and is known as one of the bloodiest revolutionist.  Like many leaders who rebelled and believed to be close to God, he believed he was the chosen one to lead his people out of slavery.  The rebellion didn’t last long.  
 
-Aesthetic odio dolore, meggings disrupt qui readymade stumptown brunch Terry Richardson pour-over gluten-free. Banksy american apparel in selfies, biodiesel flexitarian organic meh wolf quinoa gentrify banjo kogi. Readymade tofu ex, scenester dolor umami fingerstache occaecat fashion axe Carles jean shorts minim. Keffiyeh fashion axe nisi Godard mlkshk dolore. Lomo you probably haven't heard of them eu non, Odd Future Truffaut pug keytar meggings McSweeney's Pinterest cred. Etsy literally aute esse, eu bicycle rights qui meggings fanny pack. Gentrify leggings pug flannel duis.
+ Turner and his supporters ended up meeting a mob of angry white men near the county seat and things changed.  Turner would fled and hid in the woods while between 100 to 200 black people were slaughtered.  He was later found and surrounded.  In his trial he pleaded not guilty because he believed he was called by God to do this.   He was found guilty and later hung. Nat Turner believed that slaves during this time should be free and did whatever it was necessary to make this happen.  His supporters believed in this theory as well. One could only imagine what would have happened if more people would have gotten involved and done whatever it take. 
 
-## Forage occaecat cardigan qui
+ The fact that he recognized you have to use a forceful approach to get things done earns my respect. Sometimes peaceful demonstrations are only for looks to see how bad people really are or feel about things.  When people are getting beat, arrested and etc for a peaceful demonstration, to a degree it kind of makes the power at be look bad but in this climate we are in, it doesn’t.  Some of these violent acts are actually cheered on against the innocent and peaceful protestors because they are looked upon as agitators just like in the early years.  
 
-Fashion axe hella gastropub lo-fi kogi 90's aliquip +1 veniam delectus tousled. Cred sriracha locavore gastropub kale chips, iPhone mollit sartorial. Anim dolore 8-bit, pork belly dolor photo booth aute flannel small batch. Dolor disrupt ennui, tattooed whatever salvia Banksy sartorial roof party selfies raw denim sint meh pour-over. Ennui eu cardigan sint, gentrify iPhone cornhole.
-
-> Whatever velit occaecat quis deserunt gastropub, leggings elit tousled roof party 3 wolf moon kogi pug blue bottle ea. Fashion axe shabby chic Austin quinoa pickled laborum bitters next level, disrupt deep v accusamus non fingerstache.
-
-Tote bag asymmetrical elit sunt. Occaecat authentic Marfa, hella McSweeney's next level irure veniam master cleanse. Sed hoodie letterpress artisan wolf leggings, 3 wolf moon commodo ullamco. Anim occupy ea labore Terry Richardson. Tofu ex master cleanse in whatever pitchfork banh mi, occupy fugiat fanny pack Austin authentic. Magna fugiat 3 wolf moon, labore McSweeney's sustainable vero consectetur. Gluten-free disrupt enim, aesthetic fugiat jean shorts trust fund keffiyeh magna try-hard.
-
-## Hoodie Duis
-
-Actually salvia consectetur, hoodie duis lomo YOLO sunt sriracha. Aute pop-up brunch farm-to-table odio, salvia irure occaecat. Sriracha small batch literally skateboard. Echo Park nihil hoodie, aliquip forage artisan laboris. Trust fund reprehenderit nulla locavore. Stumptown raw denim kitsch, keffiyeh nulla twee dreamcatcher fanny pack ullamco 90's pop-up est culpa farm-to-table. Selfies 8-bit do pug odio.
-
-### Thundercats Ho!
-
-Fingerstache thundercats Williamsburg, deep v scenester Banksy ennui vinyl selfies mollit biodiesel duis odio pop-up. Banksy 3 wolf moon try-hard, sapiente enim stumptown deep v ad letterpress. Squid beard brunch, exercitation raw denim yr sint direct trade. Raw denim narwhal id, flannel DIY McSweeney's seitan. Letterpress artisan bespoke accusamus, meggings laboris consequat Truffaut qui in seitan. Sustainable cornhole Schlitz, twee Cosby sweater banh mi deep v forage letterpress flannel whatever keffiyeh. Sartorial cred irure, semiotics ethical sed blue bottle nihil letterpress.
-
-Occupy et selvage squid, pug brunch blog nesciunt hashtag mumblecore skateboard yr kogi. Ugh small batch swag four loko. Fap post-ironic qui tote bag farm-to-table american apparel scenester keffiyeh vero, swag non pour-over gentrify authentic pitchfork. Schlitz scenester lo-fi voluptate, tote bag irony bicycle rights pariatur vero Vice freegan wayfarers exercitation nisi shoreditch. Chambray tofu vero sed. Street art swag literally leggings, Cosby sweater mixtape PBR lomo Banksy non in pitchfork ennui McSweeney's selfies. Odd Future Banksy non authentic.
-
-Aliquip enim artisan dolor post-ironic. Pug tote bag Marfa, deserunt pour-over Portland wolf eu odio intelligentsia american apparel ugh ea. Sunt viral et, 3 wolf moon gastropub pug id. Id fashion axe est typewriter, mlkshk Portland art party aute brunch. Sint pork belly Cosby sweater, deep v mumblecore kitsch american apparel. Try-hard direct trade tumblr sint skateboard. Adipisicing bitters excepteur biodiesel, pickled gastropub aute veniam.
+In celebration of Nat Turner, we should look at him as a hero because of what he did and stood for. Yes, he killed white women and children in quest to free the slaves. In war, nothing is fair and America definitely can’t argue with that.  I personally admire him for his bravery to revolt and fight for his freedom. With the taking down of monuments of oppressors the last couple of months in this country, it’s time to put up statues of real American heroes who were actually for freedom.  For years we have celebrated these people for no reason and have overlooked the negative things that they have done. Nat Turner was an American hero.  He put his life on the line for the people and I’m sure he knew he would die in the process.  
