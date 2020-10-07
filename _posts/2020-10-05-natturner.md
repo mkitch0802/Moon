@@ -2,7 +2,7 @@
 layout: post
 title: "Today is the Great Nat Turners Birthday."
 date: 2020-10-02
-excerpt: "A ton of text to test readability with image feature."
+excerpt: "Today is the Great Nat Turners Birthday."
 tags: [Nat Turner, Black History, #BlackLivesMatter]
 feature: http://media.heartlandtv.com/images/Nat+Turner.jpeg
 comments: true
