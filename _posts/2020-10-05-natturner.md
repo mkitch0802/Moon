@@ -1,6 +1,6 @@
 ---
 layout: post
-title: "Today is the Great Nat Turner’s Birthday."
+title: "Today is the Great Nat Turners Birthday."
 date: 2020-10-02
 excerpt: "A ton of text to test readability with image feature."
 tags: [Nat Turner, Black History, #BlackLivesMatter]
