@@ -1,12 +1,3 @@
----
-layout: post
-title: "Today is the Great Nat Turners Birthday."
-date: 2020-10-02
-excerpt: "Today is the Great Nat Turners Birthday."
-tags: [Nat Turner, Black History, #BlackLivesMatter]
-feature: http://media.heartlandtv.com/images/Nat+Turner.jpeg
-comments: true
----
 **Today is the Great Nat Turner's Birthday.**
 
 With everything that has been going on in the last 6 months with the killings of Breonna Taylor, George Floyd, Ahmaud Arbery, just to name a few along with the pandemic which has affected people of color at a much higher and no one gives a damn, I can feel his frustration about being oppressed.  
