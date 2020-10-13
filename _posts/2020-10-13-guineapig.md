@@ -1,4 +1,4 @@
-##I’m not your Guinea Pig.##
+"I’m not your Guinea Pig."
 
 As I was thinking about the Covid-19 along with everything else wrong in American society, supposedly we are close to having a vaccine. With this current administration, we all know that’s bullshit because they never took this virus seriously in the beginning and every day there is a lie coming out of the White House. In fact, no one seems to know the truth about this virus. 
 
